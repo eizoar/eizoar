@@ -1,4 +1,4 @@
-## WIP ♡
-guess the team (hint: diego armando)
-eizoar/zae/favchar (diego/godot) | he/xym/any | masc/neu terms only
-read my other repository! :)
+## WIP ♡ <br>
+guess the team (hint: diego armando) <br>
+eizoar/zae/favchar (diego/godot) | he/xym/any | masc/neu terms only <br>
+read my other repository! :) <br>
