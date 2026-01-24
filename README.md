@@ -1,5 +1,1 @@
-![](https://file.garden/aUCgMNrKDAmJ66Af/3)
-<img align="right" src="https://file.garden/aUCgMNrKDAmJ66Af/1" width="50%" /> hiiiiiiiiii wiiiiipppppp placejolderimage -> <br>
-![](https://file.garden/aUCgMNrKDAmJ66Af/2)
-<img src="images/my-image.png" width="50%" /> <- placeholder image
-![](https://file.garden/aUCgMNrKDAmJ66Af/4)
+<img align="right" src="https://file.garden/aUCgMNrKDAmJ66Af/1" width="50%" ><p> i am a fictionkin of diego "godot" armando , doubles feel free to int unless you dont want to int w doubles. <br></p>i like to sit around docks with my friends or by myself. im mostly encountered with 6ums! feel free to whisper, cuddle, or hide behind my pony unless i put a dniu in my name,, i tend to misword things which comes off as mean or insensitive, so i apologize in advance! i am tone deaf and i require indicators to avoid misunderstandings. there are times where i dont respond to stuff, im either making a skin or grinding playtime. </p><p><b>im one of the owners of dateify love scouts , dm @eizoar or @immaturely on discord for server link :-)</b></p> all sites have @eizoar handle , sign my ata or strawpage! <3
