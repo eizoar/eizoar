@@ -8,4 +8,5 @@
    <br>
 　　　im not that social, so please interact with caution. im mostly seen with treesarriers and 6ums, rare occassions with my girlfriend.<br>
    <br>
-<b>　　sign my atabook ! </b>
+<b>　　sign my atabook ! </b><br>
+<img src="https://file.garden/alJffFuIhByXg4SV/nenodroid" width="27%"> i love my bestfriends sososo much ♡
